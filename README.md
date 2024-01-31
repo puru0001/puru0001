@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **puru121122@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1onQtLqZhE01L0gjU0wRmK_k5Su9ftHJY/view?usp=drivesdk)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1hoEjsSW95ewByQTz1m-IqS1XoTJnJHe4/view?usp=sharing)
 
 - ⚡ Fun fact **Fun means Netflix and Sleep 🫣**
 
